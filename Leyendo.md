@@ -1,3 +1,3 @@
 ## Libros que estoy leyendo
 
-* Reyes de la tierra salvaje por Nicholas Eames
+* Los enclaves dorados (Escolomancia, #3) por Naomi Novik
